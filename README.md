@@ -1,15 +1,4 @@
 
-##
-[AI video Editor](https://www.topview.ai)
-TopView.ai may be the best AI video editor ever, and you can try it for free. Just provide your raw materials and ideas; AI does the rest, from scriptwriting to selecting shots, editing, narrating, and beautifying your video.
-
-[Topview.ai](https://www.topview.ai) also have [best viral video hooks](https://www.topview.ai/dashboard/hooks) list. Base on AI analysis results of millions of videos, show the best video hooks in 3 level category.
-
-# TopView.ai: best AI video editor ever.
-[AI video Editor](https://www.topview.ai)
-
-AI continues to reshape how we make a video. One of the latest innovations in this space is TopView.ai, an online AI video editor that leverages the power of AI to streamline and optimize the video editing process. 
-[Topview.ai](https://www.topview.ai) also have [best viral video hooks](https://www.topview.ai/dashboard/hooks) list. Base on AI analysis results of millions of videos, show the best video hooks in 3 level category.
 
 ## A New Approach to Video Editing
 
